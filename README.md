@@ -1,2 +1,1 @@
-# Tetris-C-OpenGL-Term-Paper-
-Tetris C# OpenGL 
+If you have any questions, write in the telegram @Vladik734
