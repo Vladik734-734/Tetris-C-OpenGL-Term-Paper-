@@ -1,1 +1,1 @@
-If you have any questions, write in the telegram @Vladik734
+If you have any questions, write in the telegram 
