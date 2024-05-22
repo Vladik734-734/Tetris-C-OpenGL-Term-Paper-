@@ -1,1 +1,1 @@
-If you have any questions, write in the telegram 
+If you have any questions - i have no idea
